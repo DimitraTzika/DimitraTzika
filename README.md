@@ -151,5 +151,5 @@ I am currently interested in roles such as:
 
 # 📫 Contact
 
-📧 Email: your@email.com  
+📧 Email: demetratzeka@gmail.com  
 💼 LinkedIn: [https://linkedin.com/in/yourprofile](https://www.linkedin.com/in/dimitratzika/)  
